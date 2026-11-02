@@ -1,6 +1,17 @@
 [Nexvia Fraud Detection Presentation (1).pdf](https://github.com/user-attachments/files/34287917/Nexvia.Fraud.Detection.Presentation.1.pdf)
 
 
+
+
+https://github.com/user-attachments/assets/db18db53-5123-4d3e-975e-0c716fff3aa2
+
+
+
+
+
+
+
+
 ## 📝 Individual Internship Reflection
 
 ### **What I Learned:**
